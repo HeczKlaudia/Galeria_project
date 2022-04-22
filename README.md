@@ -1,0 +1,1 @@
+# Vizsga_gyakorlas_galeria
